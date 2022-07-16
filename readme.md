@@ -13,3 +13,8 @@
 2. Service Concept:
    - Open Project
    - Matching service for whose who need their pets' care
+
+---
+
+If you have interesting in joining this project,
+let me know soromiso@gmail.com
